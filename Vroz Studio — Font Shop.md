@@ -64,11 +64,7 @@ Tell us about your project and we’ll put together a custom license for you.
 
 Vroz Studio
 
-Quality fonts for designers.
 
-- PayPal
-- Mastercard
-- Visa
 
 #### Shop fonts
 
